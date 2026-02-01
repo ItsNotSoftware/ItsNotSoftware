@@ -1,4 +1,4 @@
-## ItsNotSoftware (Diogo Ferreira) 👋
+## Diogo Ferreira 👋
 
 ## 📊 GitHub Stats
 
